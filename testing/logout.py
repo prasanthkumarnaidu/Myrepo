@@ -1,0 +1,1 @@
+yes log out
